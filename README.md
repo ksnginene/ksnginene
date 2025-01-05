@@ -1,1 +1,1 @@
-rentry is still a work in progress , read my carrd for now ! :P
+make sure to read rentry & check out all those navigations ! ^_^
