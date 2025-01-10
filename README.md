@@ -16,7 +16,7 @@
 
 ![divider](https://files.catbox.moe/m1x958.jpg)
 
-　　　　![obtained from .co/ulazzang](https://files.catbox.moe/w7alu7.gif) i fw wuhluhwuh content
+　　　　![obtained from .co/ulazzang](https://files.catbox.moe/w7alu7.gif) $\color{lightblue}{i fw wuhluhwuh content}$
 
 <p align="center">
 ──────────  .𖥔˚
