@@ -4,8 +4,9 @@
 ──────────  .𖥔˚
 </p>
 
-[rentry](https://rentry.co/ksngnene) 、 [atabook](https://ksnginene.atabook.org/) 、 [strawpg](https://ksnginene.straw.page/)
+　　　　[rentry](https://rentry.co/ksngnene) 、 [strawpg](https://ksnginene.straw.page/)
+
 ![divider](https://files.catbox.moe/m1x958.jpg)
 ✦ redoing later ^_^
 
-![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
+　　　　　![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
