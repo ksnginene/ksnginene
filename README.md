@@ -12,6 +12,6 @@
 ✦ call me vee / elvyne ! ^_^
 </p>
 
-　　　　more names [here](https://en.pronouns.page/@viviann_) ◠ ◠
+　　　　more names [here](https://en.pronouns.page/@viviann_) ![obtained from .co/ulzzang](https://files.catbox.moe/w7alu7.gif)
 
 　　　　　　![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
