@@ -12,6 +12,14 @@
 ✦ call me vee / elvyne ! ^_^
 </p>
 
-　　　　more names [here](https://en.pronouns.page/@viviann_) ![obtained from .co/ulzzang](https://files.catbox.moe/w7alu7.gif)
+　　　　more names [here](https://en.pronouns.page/@viviann_) ![obtained from .co/ulzzang](https://files.catbox.moe/hg2s0k.gif)![obtained from .co/ulzzang](https://files.catbox.moe/wsnvzo.gif)
+
+![divider](https://files.catbox.moe/m1x958.jpg)
+
+![obtained from .co/ulazzang](https://files.catbox.moe/w7alu7.gif) i fw wuhluhwuh content
+
+<p align="center">
+──────────  .𖥔˚
+</p>
 
 　　　　　　![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
