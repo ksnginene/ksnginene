@@ -6,7 +6,10 @@
 
 　　　　![a](https://files.catbox.moe/1cap6i.gif) [rentry](https://rentry.co/ksngnene) 、 [strawpg](https://ksnginene.straw.page/) ![b](https://files.catbox.moe/7dw1ye.gif)
    
-![divider](https://files.catbox.moe/m1x958.jpg)
+   ![divider](https://files.catbox.moe/m1x958.jpg)
+
+<p align="center">
 ✦ continuing later ^_^
+</p>
 
 　　　　　　![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
