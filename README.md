@@ -4,8 +4,8 @@
 ──────────  .𖥔˚
 </p>
 
-　　　　[rentry](https://rentry.co/ksngnene) 、 [strawpg](https://ksnginene.straw.page/)
-
+　　　![a](https://files.catbox.moe/1cap6i.gif) [rentry](https://rentry.co/ksngnene) 、 [strawpg](https://ksnginene.straw.page/) ![b](https://files.catbox.moe/7dw1ye.gif)
+   
 ![divider](https://files.catbox.moe/m1x958.jpg)
 ✦ continuing later ^_^
 
