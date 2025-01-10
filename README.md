@@ -1,3 +1,4 @@
+![obtained from .co/ulzzang](https://files.catbox.moe/wmri32.png)
 ![made by vee, do not steal](https://files.catbox.moe/aghco5.png)
 <p align="center">
 ──────────  .𖥔˚
