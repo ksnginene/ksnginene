@@ -7,6 +7,6 @@
 　　　　[rentry](https://rentry.co/ksngnene) 、 [strawpg](https://ksnginene.straw.page/)
 
 ![divider](https://files.catbox.moe/m1x958.jpg)
-✦ redoing later ^_^
+✦ continuing later ^_^
 
-　　　　　![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
+　　　　　　![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
