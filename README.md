@@ -2,4 +2,4 @@
 ![divider](https://files.catbox.moe/m1x958.jpg)
 ✦ redoing later ^_^
 
-![](https://komarev.com/ghpvc/?username=ksnginene&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=ksnginene&color=629e21&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
