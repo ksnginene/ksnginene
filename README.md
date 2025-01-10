@@ -8,4 +8,4 @@
 ![divider](https://files.catbox.moe/m1x958.jpg)
 ✦ redoing later ^_^
 
-![](https://komarev.com/ghpvc/?username=ksnginene&color=a4d6fc&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
