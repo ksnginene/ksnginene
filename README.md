@@ -4,7 +4,7 @@
 ──────────  .𖥔˚
 </p>
 
-　　　　![a](https://files.catbox.moe/1cap6i.gif) [rentry](https://rentry.co/ksngnene) 、 [strawpg](https://ksnginene.straw.page/) ![b](https://files.catbox.moe/7dw1ye.gif)
+　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center">![obtained from .co/ulzzang](https://files.catbox.moe/1cap6i.gif) [rentry](https://rentry.co/ksngnene) 、 [strawpg](https://ksnginene.straw.page/) ![obtained from .co/ulzzang](https://files.catbox.moe/7dw1ye.gif)</p>
    
    ![divider](https://files.catbox.moe/m1x958.jpg)
 
@@ -12,14 +12,14 @@
 ✦ call me vee / elvyne ! ^_^
 </p>
 
-　　　　more names [here](https://en.pronouns.page/@viviann_) ![obtained from .co/ulzzang](https://files.catbox.moe/hg2s0k.gif)![obtained from .co/ulzzang](https://files.catbox.moe/wsnvzo.gif)
+　　　　<p align="center"> more names [here](https://en.pronouns.page/@viviann_) ![obtained from .co/ulzzang](https://files.catbox.moe/hg2s0k.gif)![obtained from .co/ulzzang](https://files.catbox.moe/wsnvzo.gif) </p>
 
 ![divider](https://files.catbox.moe/m1x958.jpg)
 
-　　　　![obtained from .co/ulazzang](https://files.catbox.moe/w7alu7.gif) $\color{lightblue}{i fw wuhluhwuh content}$
+　　　　<p align="center">![obtained from .co/ulazzang](https://files.catbox.moe/w7alu7.gif) $${\color{lightblue}i \space fw \space wuhluhwuh \space content}$$</p>
 
 <p align="center">
 ──────────  .𖥔˚
 </p>
 
-　　　　　　![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
+　　　　　　<p align="center">![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)</p>
