@@ -16,7 +16,13 @@
 
 　<p align="center">![divider](https://files.catbox.moe/m1x958.jpg)</p>
 
-　<p align="center">![obtained from .co/ulazzang](https://files.catbox.moe/w7alu7.gif) $${\color{lightblue}i \space fw \space wuhluhwuh \space content}$$</p>
+　<p align="center">![obtained from .co/ulazzang](https://files.catbox.moe/w7alu7.gif) mmj + niigo (ft.akito) *!* !
+ 　<p align="center">![mmj](https://files.catbox.moe/mzdfn3.png)</p>
+  　<p align="center">![n25](https://files.catbox.moe/l7xyy2.JPG)</p>
+   　<p align="center">special thanks to ::</p>
+　<p align="center">[karie](https://github.com/HOMESlCK) as haruka & kanade
+　<p align="center">[fei](https://github.com/mmarshmary) as minori & mizuki
+　<p align="center">[mae](https://github.com/VividOldTale) as airi & mafuyu
 
 <p align="center">
 ──────────  .𖥔˚
