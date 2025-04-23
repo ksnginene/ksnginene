@@ -4,7 +4,7 @@
 ──────────  .𖥔˚
 </p>
 
-　<p align="center">![obtained from .co/ulzzang](https://files.catbox.moe/1cap6i.gif) [rentry](https://rentry.co/ksngnene) 、 [strawpg](https://ksnginene.straw.page/) ![obtained from .co/ulzzang](https://files.catbox.moe/7dw1ye.gif)</p>
+　<p align="center">![obtained from .co/ulzzang](https://files.catbox.moe/1cap6i.gif) [rentry](https://rentry.co/elvyne) 、 [strawpg](https://ksnginene.straw.page/) ![obtained from .co/ulzzang](https://files.catbox.moe/7dw1ye.gif)</p>
    
 　<p align="center">![divider](https://files.catbox.moe/m1x958.jpg)</p>
 
