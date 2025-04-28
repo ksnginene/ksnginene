@@ -12,7 +12,7 @@
 ✦ call me vee / elvyne ! ^_^
 </p>
 
-　<p align="center"> more names [here](https://en.pronouns.page/@viviann_) ![obtained from .co/ulzzang](https://files.catbox.moe/hg2s0k.gif)![obtained from .co/ulzzang](https://files.catbox.moe/wsnvzo.gif) </p>
+　<p align="center"> more names [here](https://en.pronouns.page/@elvyne) ![obtained from .co/ulzzang](https://files.catbox.moe/hg2s0k.gif)![obtained from .co/ulzzang](https://files.catbox.moe/wsnvzo.gif) </p>
 
 <p align="center">
 ──────────  .𖥔˚
