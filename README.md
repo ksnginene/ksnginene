@@ -4,7 +4,7 @@
 ![](https://file.garden/Z8gaqXTgmgo8vRu7/purina)
 
 
-[main](https://rentry.co/elvyne) ， [shared](https://rentry.co/HeavenPicked) ， [matching(SOON!!!trustme)](https://rentry.co/)
+[main](https://rentry.co/elvyne) ， [shared](https://rentry.co/HeavenPicked)
 
 
 <p align="center">──────────  .𖥔˚</p>
