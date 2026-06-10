@@ -1,3 +1,4 @@
+i sign oomfs atawhenever i feel bored ok?
 
 　<p align="center">[extended](https://rentry.co/farrah-goodfairy) 、 [atabook](https://ksnginene.atabook.org/) 、 [strawpage.](https://ksnginene.straw.page/) </p>
 
