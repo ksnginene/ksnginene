@@ -1,4 +1,4 @@
-i sign oomfs atawhenever i feel bored ok?
+i sign oomfs atawhenever i feel bored, i refer myself as ve sometimes... idm any nicknames call me anything u want unless its inappropriate thanky
 
 　<p align="center">[extended](https://rentry.co/farrah-goodfairy) 、 [atabook](https://ksnginene.atabook.org/) 、 [strawpage.](https://ksnginene.straw.page/) </p>
 
