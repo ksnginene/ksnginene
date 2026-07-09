@@ -1,6 +1,8 @@
 <p align="center">i refer myself as ve !</p>
 IM SORRY OOMFS MY FATAS FINGER ACCIDENTALLY UNFOLLOW WHEN I CHECK YALLS ACC IM SORRYbut it ok i follow yall back🥺
 
+follooowoww one and only [@VilLeynn](https://github.com/VilLeynn) goated tsukasa cos😋✌️✌️✌️ #poweroffriendship
+
 　<p align="center">[extended](https://rentry.co/farrah-goodfairy) 、 [atabook](https://ksnginene.atabook.org/) 、 [strawpage.](https://ksnginene.straw.page/) </p>
 
 ![](https://file.garden/Z8gaqXTgmgo8vRu7/purina)
