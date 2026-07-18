@@ -1,6 +1,4 @@
-<p align="center">i refer myself as ve on lovely oomfa loompas ata yall the best\
- i tend to hide behind oomfs , especially in a cuddle pile !
-</p>
+<p align="center">i refer myself as ve on lovely oomfa loompas ata yall the best</p>
 
 follow and sign [@VilLeynn](https://github.com/VilLeynn)'s ata now to get tsukasa for 20% off on ponytown slash srs slash nojoke
 
