@@ -6,7 +6,7 @@ follow and sign [@VilLeynn](https://github.com/VilLeynn)'s ata now to get tsukas
 
 <p align="center">──────────  .𖥔˚</p>
 
-![](https://media1.tenor.com/m/A7CAxQXQE7QAAAAd/furina-genshin-impact.gif)
+![](https://media1.tenor.com/m/k-0BhSJvcPcAAAAC/furina-furina-genshin.gif)
 <details>
  <summary>wip</summary>
  wip
