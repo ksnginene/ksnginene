@@ -1,5 +1,7 @@
 <p align="center">i refer myself as ve on lovely oomfa loompas ata yall the best</p>
 
+![](https://file.garden/Z8gaqXTgmgo8vRu7/fufu)
+
 follow and sign [@VilLeynn](https://github.com/VilLeynn)'s ata now to get tsukasa for 20% off on ponytown slash srs slash nojoke
 
 　<p align="center">[extended](https://rentry.co/farrah-goodfairy) 、 [atabook](https://ksnginene.atabook.org/) 、 [strawpage.](https://ksnginene.straw.page/) </p>
