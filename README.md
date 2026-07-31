@@ -1,4 +1,4 @@
-for clarifications, hi, [@7-forums](https://github.com/7-forums) and i are NOT in a relationship! i consider them as a really close friend of mine. while sea and i match couple-like pfps and skins on pt, we do not see each other that way!! please refrain from shipping us, we are real people behind the screen!
+for clarifications, hi, [@7-forums](https://github.com/7-forums) and i are NOT in a relationship! i consider them as a really close friend of mine. please refrain from shipping us, we are real people behind the screen!
 
 —
 
