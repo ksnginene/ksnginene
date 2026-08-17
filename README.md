@@ -1,9 +1,3 @@
-follow and sign [@VilLeynn](https://github.com/VilLeynn)'s ata now to get tsukasa for 20% off on ponytown slash srs slash nojoke
-
-—
-
-[help me out on genshin ! !](https://hoyo.link/49rBKlQfs?m_code=GAC3CXRXDN)
-
 　<p align="center">![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)</p>
 
 <p align="center">──────────  .𖥔˚</p>
