@@ -3,7 +3,7 @@
  sea (@7-forums) and i are NOT in a relationship! i consider them as a really close friend of mine. while sea and i match a lot, that doesnt mean we see each other that way. please refrain from shipping us, we are real people behind the screen!
 </details>
  
- <p align="center">![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)</p>
+ ![](https://komarev.com/ghpvc/?username=ksnginene&color=7691a6&label=..++໒꒰〃´+꒳+`〃꒱১+﹒&abbreviated=true)
 
 <p align="center">──────────  .𖥔˚</p>
 
