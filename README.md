@@ -12,3 +12,8 @@
 <p align="center"> l͟o͟v͟e͟ m͟a͟i͟l͟ ⁠๑⁠˙⁠❥⁠˙⁠๑ </p> <p align="center">
 <a href="https://github.com/VividOldTale">Mae</a> ⊹ <a href="https://github.com/enanemon">Vio</a> ⊹ <a href="https://github.com/7-forums">Sea</a> ⊹ <a href="https://github.com/mmarshmary">Fei</a> ⊹ <a href="https://github.com/HOMESlCK">Karie</a>  ⊹ <a href="https://github.com/OLD-D0LL">Katie</a> ⊹ <a href="https://github.com/gaku-kai">Nat</a> ⊹ <a href="https://github.com/kadita-san">Kadita</a> ⊹ <a href="https://github.com/DEADINS0MNIA">Yuki</a> ⊹ <a href="https://github.com/timekeepertsukasa">Sol</a> ⊹ <a href="https://github.com/HoshiKamii">Kamii</a> ⊹ <a href="https://github.com/ksnginene?tab=following">Following List</a> ⊹ <a href="https://pony.town/">Green Names</a>
 </p>
+<p align="center">
+<img src="https://file.garden/Z8gaqXTgmgo8vRu7/fuhnawna">
+ </p>
+ <p align="center">𝗟𝗲𝘁 𝗺𝘆 𝗻𝗮𝗺𝗲 𝗲𝗰𝗵𝗼 𝗶𝗻 𝘀𝗼𝗻𝗴𝘀</p>
+ <p align="center">──────────  .𖥔˚</p>
