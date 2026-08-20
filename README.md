@@ -1,4 +1,5 @@
 <p align="center">──────────  .𖥔˚</p>
+<p align="center">𝗙𝘂𝗿𝗶𝗻𝗮 𝗱𝗲 𝗙𝗼𝗻𝘁𝗮𝗶𝗻𝗲</p>
 <p align="center">
 <img src="https://media1.tenor.com/m/k-0BhSJvcPcAAAAC/furina-furina-genshin.gif">
  </p>
