@@ -1,7 +1,10 @@
 <p align="center">──────────  .𖥔˚</p>
-
-![](https://media1.tenor.com/m/k-0BhSJvcPcAAAAC/furina-furina-genshin.gif)
-[MAIN](https://rentry.co/elvyne) + [EXTENDED](https://rentry.co/farrah-goodfairy) . [ATABOOK](https://ksnginene.atabook.org/) . [STRAWPAGE](https://ksnginene.straw.page/) . [SHARED](https://rentry.co/HeavenPicked)
+<p align="center">
+<img src="https://media1.tenor.com/m/k-0BhSJvcPcAAAAC/furina-furina-genshin.gif">
+ </p>
+<p align="center">
+<a href="https://rentry.co/elvyne">MAIN</a> + <a href="https://rentry.co/farrah-goodfairy">EXTENDED</a>  .  <a href="https://ksnginene.atabook.org/">ATABOOK</a> . <a href="https://ksnginene.straw.page/">STRAWPAGE</a> . <a href="https://rentry.co/HeavenPicked">SHARED</a>
+</p>
 
 [@shijima-mei](https://github.com/shijima-mei) also me but lost email bruh i keep forgetting to login on my new phone
 
