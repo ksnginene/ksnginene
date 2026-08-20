@@ -8,6 +8,10 @@
 
 [@shijima-mei](https://github.com/shijima-mei) also me but lost email bruh i keep forgetting to login on my new phone
 
+<p align="center"> mi kawaii oomfa loompas</p>
+<p align="center">
+<a href="github.com/7-forums">Sea</a> ⊹ <a href="github.com/mmarshmary">Fei</a> ⊹ <a href="github.com/VividOldTale">Mae</a> ⊹ <a href="github.com/enanemon">Vio</a> ⊹ <a href="github.com/HOMESlCK">Karie</a>  ⊹ <a href="github.com/OLD-D0LL">Katie</a> ⊹ <a href="github.com/overIoaded">Hana</a> ⊹ <a href="github.com/DEADINS0MNIA">Yuki</a> ⊹ <a href="github.com/timekeepertsukasa">Sol</a> ⊹ <a href="github.com/HoshiKamii">Kamii</a> ⊹ <a href="github.com/OUR-SHARED-DREAMS">Hina</a>
+
 <details>
  <summary>CLARIFICATIONS!!!</summary>
  sea (@7-forums) and i are NOT in a relationship! i consider them as a really close friend of mine. while sea and i match a lot, that doesnt mean we see each other that way. please refrain from shipping us, we are real people behind the screen!
